@@ -2,8 +2,9 @@
 
 ## Ingredients
 
-- 1DL Hazel nuts
+- 1DL Hazelnuts
 - 1DL Macadamia nuts
+- 1DL Chestnuts
 
 
 ## Instructions
